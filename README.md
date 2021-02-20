@@ -15,5 +15,5 @@
 12. < 40%  100 Day Home Hunt * FanBoxChan Henry W Tracy Francis Chan Eucharist Real Estate CCF A* Start Twitter automation postings bot autobot
 
 ## 2021
-1. January < 40% 100 Day Home Hunt Start Collaborative Excel  Suspend Search LING MENTOR MODEL BIZNESS 4 CoinEvangelists AZAT ALBERT LING LEE VIDEO SUBSCRIPTIONS Coincertifications Markets Overview 0. GAME-Social 1. Educational 2. Religious-Spiritual 3. Political 
+1. January < 40% 100 Day Home Hunt Start Collaborative Excel  Suspend Search LING MENTOR MODEL BIZNESS 4 CoinEvangelists AZAT ALBERT LING LEE VIDEO SUBSCRIPTIONS Coincertifications Markets Overview 0. GAME-Social 1. Educational 2. Religious-Spiritual 3. Political Recruiter Referral Girl Jo Anna Tech Diversity Python workshop Tutoring Center Retail Business Retail Discount Mine craft stormMIND LEGO = LEE + VIDEO begin coinbase withdraw leave nothing table
 2. February 2 Weeks Time 2-WeekTime  A* Python KIVY B* Learn & Earn Coinbase / CMC + Binance  C* Crypto Calendar Hackathons List D* ROI 3X - 5X - 7X Crypto Gains up time upkeep E* MEW - WCX Wallet Rewards Resume Luxury Listings Suspend MC Operations

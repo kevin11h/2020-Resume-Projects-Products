@@ -11,5 +11,9 @@
 9. AYPP
 10. AYPP Interview
 
-11.
-12.
+11. < 40% 100 Day Home Hunt Start Collaborative Excel Cap Table Real Estate
+12. < 40%  100 Day Home Hunt * FanBoxChan Henry W Tracy Francis Chan Eucharist Real Estate CCF
+
+## 2021
+1. January < 40% 100 Day Home Hunt Start Collaborative Excel  Suspend Search LING MENTOR MODEL BIZNESS 4 CoinEvangelists AZAT ALBERT LING LEE VIDEO SUBSCRIPTIONS Coincertifications Markets Overview 0. GAME-Social 1. Educational 2. Relgious-Spiritual 3. Political 
+2. February 2 Weeks Time 2-WeekTime  A* Python KIVY B* Learn & Earn Coinbase / CMC + Binance  C* Crypto Calendar Hackathons List D* ROI 3X - 5X - 7X Crypto Gains up time upkeep E* MEW - WCX Wallet Rewards Resume Luxury Listings Suspend MC Operations

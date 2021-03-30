@@ -29,7 +29,7 @@
 + 100 Direct Action Signs ~2 mo.s x ^7 mo.s above
 + 30 Novel Selling Direct Action ~2 mo.s
 
-
+----------------------------
 + sell OPP books 100 ~3 mo.s
 
-~ 700SX
+~ S700X

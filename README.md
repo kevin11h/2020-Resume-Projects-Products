@@ -19,3 +19,11 @@
 2. February 2 Weeks Time 2-WeekTime  A* Python KIVY B* Learn & Earn Coinbase / CMC + Binance  C* Crypto Calendar Hackathons List D* ROI 3X - 5X - 7X Crypto Gains up time upkeep E* MEW - WCX Wallet Rewards Resume Luxury Listings Suspend MC Operations https://github.com/kevin11h/Feb.-February-2021-Side-Question-Coinquest-Earnings-Rewards
 3. ~GFundMes ^^^ + $44 Sign Safety Donations + $15 Novel Selling (+ $64.4 InstaCredits)
 \+++ Plus Buncha Micro Cryptos
+## 7 Methods Elements
+200 Wind
+50 Brief
+100 Liter - Water - Liquidity word
+100 Direct Action Signs ~2 mo.s x ^7 mo.s above
+50 Crypto < 1 hour total
+70 < 3 Days asking = 20 + 20 + 35
+30 Novel Selling Direct Action ~2 mo.s

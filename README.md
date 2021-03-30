@@ -20,10 +20,11 @@
 3. ~GFundMes ^^^ + $44 Sign Safety Donations + $15 Novel Selling (+ $64.4 InstaCredits)
 \+++ Plus Buncha Micro Cryptos
 ## 7 Methods Elements
-200 Wind
-50 Brief
-100 Liter - Water - Liquidity word
-100 Direct Action Signs ~2 mo.s x ^7 mo.s above
-50 Crypto < 1 hour total
-70 < 3 Days asking = 20 + 20 + 35
-30 Novel Selling Direct Action ~2 mo.s
+# 7 Methods Elements
++ 50 Crypto < 1 hour total
++ ~70 < 3 Days asking = 20 + 20 + 35 Direct Donations Transfer
++ 200 Wind
++ 50 Brief
++ 100 Liter - Water - Liquidity word
++ 100 Direct Action Signs ~2 mo.s x ^7 mo.s above
++ 30 Novel Selling Direct Action ~2 mo.s

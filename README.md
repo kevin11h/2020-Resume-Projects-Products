@@ -15,10 +15,11 @@
 12. < 40%  100 Day Home Hunt * FanBoxChan Henry W Tracy Francis Chan Eucharist Real Estate CCF A* Start Twitter automation postings bot autobot
 
 ## 2021
-1. January < 40% 100 Day Home Hunt Start Collaborative Excel  Suspend Search LING MENTOR MODEL BIZNESS 4 CoinEvangelists AZAT ALBERT LING LEE VIDEO SUBSCRIPTIONS Coincertifications Markets Overview 0. GAME-Social 1. Educational 2. Religious-Spiritual 3. Political Recruiter Referral Girl Jo Anna Tech Diversity Python workshop Tutoring Center Retail Business Retail Discount Mine craft stormMIND LEGO = LEE + VIDEO begin coinbase withdraw leave nothing table
-2. February 2 Weeks Time 2-WeekTime  A* Python KIVY B* Learn & Earn Coinbase / CMC + Binance  C* Crypto Calendar Hackathons List D* ROI 3X - 5X - 7X Crypto Gains up time upkeep E* MEW - WCX Wallet Rewards Resume Luxury Listings Suspend MC Operations https://github.com/kevin11h/Feb.-February-2021-Side-Question-Coinquest-Earnings-Rewards
-3. ~GFundMes ^^^ + $44 Sign Safety Donations + $15 Novel Selling (+ $64.4 InstaCredits)
-\+++ Plus Buncha Micro Cryptos
+1. January < 40% 100 Day Home Hunt Start Collaborative Excel  Suspend Search LING MENTOR MODEL BIZNESS 4 CoinEvangelists AZATAN ALBERT LING LEE VIDEO SUBSCRIPTIONS Coincertifications Markets Overview 0. GAME-Social 1. Educational 2. Religious-Spiritual 3. Political Recruiter Referral Girl Jo Anna Tech Diversity Python workshop Tutoring Center Retail Business Retail Discount Mine craft stormMIND LEGO = LEE + VIDEO begin coinbase withdraw leave nothing table ROOMATE RENT REFERRAL REWARDS Couchsurf
+2. February 2 Weeks Time 2-WeekTime  A* Python KIVY B* Learn & Earn Coinbase / CMC + Binance  C* Crypto Calendar Hackathons List D* ROI 3X - 5X - 7X Crypto Gains up time upkeep E* MEW - WCX Wallet Rewards Resume Luxury Listings Suspend MC Operations https://github.com/kevin11h/Feb.-February-2021-Side-Question-Coinquest-Earnings-Rewards ROOMATE RENT REFERRAL REWARDS Couchsurf
+3. ~GFundMes ^^^ + $44 Sign Safety Donations + $15 Novel Selling (+ $64.4 InstaCredits) \+++ Plus Buncha Micro Cryptos SPRING SPRINT INTO ACTION  2X GGV
+4. Automated Outsource Instacart source Delivery Upsell 1st Care Kits Signs <$400~$500 50%-50% Direct Digital Donations SPRING SPRINT INTO ACTION  2X  GGV
+5. PoD GFundMe PoD Clothe Care May Mental Resilience Bruce Lee Tees 15K Lead GenX Clothing Care List PoD pocketbooks Direct Digital Donations SPRING SPRINT INTO ACTION 2X Bonfire Inspire 
 ## 7 Methods Elements
 # 7 Methods Elements
 + 50 Crypto < 1 hour total

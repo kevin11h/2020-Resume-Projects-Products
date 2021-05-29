@@ -34,3 +34,4 @@
 + sell OPP books 100 ~3 mo.s
 
 ~ S700X
+$Tx $700 $TRX $VET
